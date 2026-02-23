@@ -2,7 +2,7 @@
 basic info here mostly pt  
 Rusuran or Lance, she\any idc, w2i and c + h always  
 ⛔ - dniuf, 🌙 - can be fr away, still can int (w2i)  
-VERY shy and anxious so never expect me to int first, I might admire you from afar...  
+VERY shy and anxious so never expect me to interact first, I might admire you from afar...  
  
 dni list:  
 base, trolls, skin copies, adult\under 13 ppl  
