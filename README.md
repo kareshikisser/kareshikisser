@@ -5,7 +5,7 @@ Rusuran or Lance, she\any idc, w2i and c + h always
 VERY shy and anxious so never expect me to interact first, I might admire you from afar...  
  
 dni list:  
-base, trolls, skin copies, adult\under 13 ppl  
+base, trolls, skin copies, adult \ under 13\ over 17 ppl  
   
 socials:  
 tg: @judekisser, tiktok: @kareshikisser, dc: @x1nllxd  
