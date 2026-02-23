@@ -1,7 +1,7 @@
-# halloo
-basic info here mostly pony town  
+## halloo
+_basic info here mostly pony town ! !_  
       
-Rusuran or Lance, she\her, w2i and c + h always  
+**Rusuran** or Lance, she\her, <ins>w2i and c + h always</ins>  
 ⛔ - dniuf, 🌙 - can be fr away, still can int (w2i)  
 VERY shy and anxious so never expect me to interact first, I might admire you from afar...  
  
