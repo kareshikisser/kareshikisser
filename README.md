@@ -9,7 +9,7 @@ VERY shy and anxious so never expect me to interact first, I might admire you fr
  base, trolls, skin copies, adult \ under 13 \ over 17 ppl  
   
 * socials:  
-tg: @judekisser, tiktok: @kareshikisser, dc: @x1nllxd
+tg, dc, tt - @kareshikisser, X - @X1nllXD
 
 guess my favourite character ahh  
  
