@@ -1,15 +1,15 @@
 ## halloo
 _basic info here mostly pony town ! !_  
       
-**Rusuran** or Lance, she\her, <ins>w2i and c + h always</ins>  
-⛔ - dniuf, 🌙 - can be fr away, still can int (w2i)  
+**Rusuran** or Lance, she\her, <ins>w2i and c + h always</ins> .  
+⛔ - dniuf, 🌙 - can be fr away, still can int (w2i) .  
 VERY shy and anxious so never expect me to interact first, I might admire you from afar...  
  
 * dni list:  
- base, trolls, skin copies, adult \ under 13 \ over 17 ppl  
+ base, trolls, skin copies, adult \ under 13 \ over 17 ppl, antiyumes . 
   
 * socials:  
-tg, dc, tt - @kareshikisser, X - @X1nllXD
+tg, dc, tt - @kareshikisser, X - @X1nllXD .
 
 guess my favourite character ahh  
  
