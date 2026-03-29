@@ -6,11 +6,7 @@ _basic info here mostly pony town ! !_
 VERY shy and anxious so never expect me to interact first, I might admire you from afar...  
  
 * dni list:  
- base, trolls, skin copies, adult \ under 13 \ over 17 ppl, antiyumes . 
-  
-* socials:  
-tg, dc, tt - @kareshikisser, X - @X1nllXD .
-
+ base, trolls, skin copies, adult \ under 13 \ over 17 ppl, antiyumes .
 guess my favourite character ahh  
  
 ![syudou](https://github.com/user-attachments/assets/b3757342-dc98-4169-8450-f2a6e3156e48)
